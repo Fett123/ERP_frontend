@@ -26,4 +26,4 @@ Financial Service
 
 ![vs1cloud-2](https://user-images.githubusercontent.com/118581887/204189115-c52aca7c-2ebc-4854-a931-a5f55722fcd8.png)
 
-![Uploading vs1cloud-4.png…]()
+![vs1cloud-4](https://user-images.githubusercontent.com/118581887/204189275-4971db9b-5766-4c66-bd6e-16f3164070b3.png)
